@@ -1,5 +1,10 @@
 # Hanzalah Ahmed Khurshid
 
-* ***Address:** F-88 Malir Cantt Bazar Karachi*
+***Address:** F-88 Malir Cantt Bazar Karachi*
 
-* ***Email:** akhanzalah@gmail.com **PhoneNo.:** 03422858875*
+***Email:** akhanzalah@gmail.com **PhoneNo.:** 03422858875*
+
+
+## Carrer Objective
+
+*To secure a challenging position in a reputable organization to expand my learnings, knowledge, and skills. Secure a responsible career opportunity to fully utilize my training and skills, while making a significant contribution to the success of the company.*
