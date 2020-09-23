@@ -12,6 +12,6 @@
 
 ## Education
 
--**O Levels in Pre-Engineering in 2015**
--**Intermediate in Pre-Engineering in 2018**
--**Enrolled in Bachelores in Software Engineering in 2019**
+- **O Levels in Pre-Engineering in 2015**
+- **Intermediate in Pre-Engineering in 2018**
+- **Enrolled in Bachelores in Software Engineering in 2019**
