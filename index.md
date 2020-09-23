@@ -1,4 +1,4 @@
-!.[My Photo].(https://www.google.com/search?q=avatar+placeholder+image&rlz=1C1GCEU_enPK890PK890&tbm=isch&source=iu&ictx=1&fir=5gYUCMTyYfVWCM%252CIty-VeKC8FSPXM%252C_&vet=1&usg=AI4_-kQKIe0vvWoXI3y8HNJ2qSnz2w057g&sa=X&ved=2ahUKEwjxvJiKtf_rAhUryIUKHYtrAwkQ9QF6BAgKEE0#imgrc=5gYUCMTyYfVWCM)
+!.[My Photo].(https://pixabay.com/vectors/avatar-icon-placeholder-1577909/)
 # Hanzalah Ahmed Khurshid
 
 ***Address:** F-88 Malir Cantt Bazar Karachi*
